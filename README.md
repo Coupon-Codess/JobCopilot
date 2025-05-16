@@ -1,6 +1,9 @@
 # JobCopilot Promo Codes – 50% Off Discount (2025)
 Unlock **50% off** JobCopilot with our exclusive promo codes! Boost your job search with AI-powered resume optimization, interview prep, and career coaching—**limited-time April 2025 deal**.  
 
+
+[![Discount button](https://github.com/user-attachments/assets/dd346f5f-ca39-4f41-8cdd-1be90be3fe6e)](https://jobcopilot.com/?linkId=lp_494205&sourceId=abdul-raheem&tenantId=jobcopilot)
+
 ---  
 ## **Introduction**  
 Job hunting can be overwhelming, but **JobCopilot**—an AI-powered career assistant—makes it easier. From **resume optimization** to **interview coaching**, JobCopilot helps job seekers land their dream roles faster.  
